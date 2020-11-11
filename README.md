@@ -1,0 +1,2 @@
+# yangijoy
+BilimOl uchun
